@@ -1,11 +1,7 @@
-## Author✨
+## For Feedback/Problem
 
-Ikhwan Fadhilah
+DM me on Instagram [Here](https://www.instagram.com/dooo_dott/)
 
-## For Feedback💢
-
-DM Me on Instagram [Here](https://www.instagram.com/dooo_dott/)
-
-## License💎
+## License
 
 ©2022 All Right Reserved - Developed by Ikhwan Fadhilah
