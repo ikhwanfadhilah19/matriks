@@ -1,9 +1,6 @@
 ## Author✨
+
 Ikhwan Fadhilah
-
-## About💨
-
-Program Matriks 3 x 3 C++
 
 ## For Feedback💢
 
